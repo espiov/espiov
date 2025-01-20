@@ -10,5 +10,5 @@ top 30 anime deaths . number one yourFUCKING ASS RIGHT NOW
 
 mintcoffee duo (shadow & tails) ceo 
 
-if you ever see me sitting with a "kelsey" guy pls call the police idk him!
+if you ever see me sitting with a "kelsey" or "mephone4s" guys pls call the police idk them!
 </div>
