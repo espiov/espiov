@@ -1,16 +1,14 @@
-## Hi there 👋
+</div>
 
-<!--
-**espiov/espiov** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+top 30 reasons why TG is sorry... number 5 will surprise you!
+  
+top 30 anime deaths . number one yourFUCKING ASS RIGHT NOW
 
-Here are some ideas to get you started:
+![](https://files.catbox.moe/9z0spg.png)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+mintcoffee duo (shadow & tails) ceo 
+
+if you ever see me sitting with a "kelsey" guy pls call the police idk him!
+</div>
